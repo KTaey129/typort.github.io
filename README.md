@@ -1,1 +1,0 @@
-# typort.github.io
